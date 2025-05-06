@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Diegalv
+- 👋 Hi, I’m Diego Alves Ferreira
 - 👀 I’m interested in tecnologias que estão mudando a maneira como vivemos, solucionando problemas de forma simples e ágil. Tenho interesse também por investimentos e economia mundial
 - - 🌱 I’m currently learning a lot about generative AI, the Internet of Things and digital marketing
 - - 💞️ I’m looking to collaborate on companies that need to solve problems, where I can contribute with my enthusiasm and energy, in addition to my communication skills, partnership building, negotiation and critical and aggregating analysis in business.
